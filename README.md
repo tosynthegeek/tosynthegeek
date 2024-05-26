@@ -3,7 +3,6 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 
 * ✉️  You can contact me at [oluwatosinojedapo@gmail.com](mailto:oluwatosinojedapo@gmail.com)
-* 🤝  I'm open to collaborating on Web3 and Blockchain Development
 
 
 ### Socials
